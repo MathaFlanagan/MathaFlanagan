@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MathaFlanagan
+- 👀 I’m interested in coding, illustration, and video games
+- 🌱 I’m currently learning software engineering and graphic design
+- 💞️ I’m looking to collaborate on any project that can expand my portfolio and knowledge
+- 📫 How to reach me: mattcalico1999@gmail.com
